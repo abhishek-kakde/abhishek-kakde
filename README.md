@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **er.abhishekkakde@gmail.com**
 
-- 📄 Know about my experiences [https://shorturl.at/vyM28](https://shorturl.at/vyM28)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1tnfJeRg6ZehUqGyeMeMAMjjzHYnMLbRs/view?usp=drive_link](https://shorturl.at/vyM28)
 
 - ⚡ Fun fact **I crack dark jokes.**
 
