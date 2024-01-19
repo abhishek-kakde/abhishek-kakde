@@ -15,7 +15,9 @@ Experience with: SQL, Tableau, PowerBi
 Passionate About: Ethical AI, Explainable AI, and bridging the gap between research and practical applications.
 
 📫 How to Reach Me
+
 LinkedIn: www.linkedin.com/in/abhishekkakde2709
+
 Email: er.abhishekkakde@gmail.com
 
 🤝 Let's Connect!
